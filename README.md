@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Daniel Pena
+- 👀 I’m interested in Traveling and listening to music. 
+- 🌱 I’m currently learning Web communications
+- ⚡ Fun fact: I jumped out of a plane last summer.
+- 😄 Tell me about you... 
